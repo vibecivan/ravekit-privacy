@@ -1,6 +1,6 @@
 # RaveKit Privacy Policy / 隱私權政策
 
-_Last updated: July 4, 2026 · 最後更新:2026 年 7 月 4 日_
+_Last updated: July 16, 2026 · 最後更新:2026 年 7 月 16 日_
 
 ## English
 
